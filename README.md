@@ -21,5 +21,5 @@
 
 总结：A适合追新，B适合查找，C适合移动观看。选择合适的平台并做好防护，看片更放心。
 
-<span style="display:none;">[Canonical link][(](https://github.com/ba20250707/so1 ）</span>
+<span style="display:none;">[Canonical link][(](https://github.com/ba20250707/so41 ）</span>
 
